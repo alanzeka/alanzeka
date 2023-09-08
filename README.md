@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Alan.
+- 👀 I’m interested in coding, music, games, and people.
+- 🌱 I’m currently learning code languages such as Python.
+- 📫 Reach me on Discord (@alanthereal) or here!
+- 📌 Learning to code and many other stuff with @gustavoguanabara (Curso em Vídeo on YouTube).
